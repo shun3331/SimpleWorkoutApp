@@ -37,4 +37,4 @@
 
 ## 7. お問い合わせ
 
-お問い合わせ先：xxxxx@example.com
+お問い合わせ先：shun.332.swm@gmail.com
